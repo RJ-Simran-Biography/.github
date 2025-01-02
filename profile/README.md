@@ -31,7 +31,7 @@ RJ Simran’s big break came when she got the opportunity to host a morning show
 
 Her show became an instant hit. Her lively nature, witty remarks, and ability to connect with listeners made her stand out. She discussed relatable topics, shared motivational stories, and played the latest music hits. People started tuning in every morning to hear her cheerful voice.  
 
----[read more](https://thehindiworld.com/rj-simran-singh-biography-death-wiki/)
+---read more about[RJ Simran](https://thehindiworld.com/rj-simran-singh-biography-death-wiki/)
 
 ## What Makes RJ Simran Special  
 Simran’s ability to connect with her audience is what makes her unique. She doesn’t just talk; she listens too. Her shows are interactive, where listeners can share their thoughts, problems, and experiences.  
